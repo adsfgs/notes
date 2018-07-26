@@ -1,0 +1,2 @@
+# notes
+etalkr’s notes
